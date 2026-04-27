@@ -19,7 +19,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> يا عمري تعال في حضني الآن
+> روحي تنادي وعيني لا تنام
+> الشوق نار تحرق كل الكلام
+> أنت حياتي وبداية الغرام
 > ...
 
 [View Full Lyrics ->](./lyrics.txt)
